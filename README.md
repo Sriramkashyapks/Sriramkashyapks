@@ -8,6 +8,6 @@
 - I’m interested in 👀 Flutter, Cloud computing, Web3, IOS and DevOps and currently exploring different domains best suited for me.
 - 📚 🧑‍🏫 I’m currently studying Computer Science in MIT Mysore
 - 📫 mail me using kssriramkashyap002@gmail.com
-- Connect me on [Twitter](https://twitter.com/Sriramkashyap_)
+- Connect me on [Twitter](https://twitter.com/Sriramkashyap_) [LinkedIn](https://www.linkedin.com/in/sriramkashyap-ks-aa8a3b200/)
 
 
